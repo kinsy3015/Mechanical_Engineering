@@ -8,4 +8,12 @@
 
 
 
+
+
+
+![2](https://github.com/kinsy3015/Mechanical_Engineering/assets/62363841/30cdc2c1-cab5-4fc9-a2ce-b244a442754d)
+
+
+
+
 ![9](https://github.com/kinsy3015/Mechanical_Engineering/assets/62363841/a429af24-6501-40e2-9844-2809d7a0d373)
