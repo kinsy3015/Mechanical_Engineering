@@ -8,7 +8,7 @@
 
 
 #NanoCAD
-![image](https://github.com/kinsy3015/Mechanical_Engineering/assets/62363841/0f3eff17-9451-4873-92cd-0080ae5ee817)
+![image](https://github.com/kinsy3015/Mechanical_Engineering/assets/62363841/226299ae-5a0e-4954-8554-49872ae4cec9)
 
 
 
